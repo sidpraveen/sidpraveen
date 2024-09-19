@@ -2,7 +2,7 @@
 - 👀 I’m interested in watching 2000's movies, playing basketball, and trying new chocolates :)
 - 🌱 I’m currently learning back-end development, and OOP
 - 💞️ I’m looking to collaborate on projects, hackathons, and clubs
-- 📫 You can reach via email: siddarthpraveen@icloud.com, or linkedin: @SiddarthPraveen
+- 📫 You can reach via email: spraveen@bu.edu, or linkedin: @SiddarthPraveen
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am mildly allergic to just about every fruit
 
